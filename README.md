@@ -1,1 +1,1 @@
-# ampmyun.github.io-stock
+# ampmyun
